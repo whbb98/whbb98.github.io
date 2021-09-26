@@ -1,1 +1,1 @@
-# This Domain Reserev to Abdelouahab Radja ;)
+# This Domain is Reserved to Abdelouahab Radja ;)
